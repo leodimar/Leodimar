@@ -4,7 +4,7 @@ Meu nome é Leodimar Roveda
 
 - Estudo na [Alura];(https://www.alura.com.br)
 - Gosto de andar de bike
-- Não falo muito
+- Seja melhor do que ontem
 
 ### você entrar em contato comigo 📧
 
